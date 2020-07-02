@@ -1,1 +1,1 @@
-https://github.com/jonwhite-cpnbts
+[My GitHub public profile] https://github.com/jonwhite-cpnbts
